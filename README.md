@@ -1,0 +1,1 @@
+# smart-internz-Qlik-internship
